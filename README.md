@@ -3,7 +3,7 @@
 ### <a href="https://instagram.com?dudar.ramos?igshid=MDM4ZDc5MmU">Instagram</a> 
 #### Ela/dela, 15 anos, Paranaense
 
-<img src="CAPITAOPATRIA.jpeg">
+<img height="200px" src="mitinho.jpeg"> eu se falasse tudo que penso
  
  <img src="images.jpeg"> <img src="minecreft.jpeg">
 <img src="download2.jpeg"> :point_left: meu real pai
